@@ -35,6 +35,12 @@ __⟡__
 >
 
 > *~~RENTRY IS UNDER CONSTRUCTION~~*
+>
+
+***
+<p align="center">
+    <img width="70" src="https://github.com/user-attachments/assets/618b5766-368f-4b8b-ad09-dfd8a7763284" alt="dork">
+</p>
 <!--
 **loosestrifes/loosestrifes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
