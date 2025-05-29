@@ -15,7 +15,7 @@ __⟡__
             17 𝘺/𝘰   ﹕𝙝𝙚/𝙝𝙞𝙢/𝙝𝙞𝙨  
 </p>
 <p align="center">
-// 𝘽𝙎𝘿 + 𝐹𝐹𝒱𝐼𝐼
+// 𝘽𝙎𝘿 + 𝐹𝐹𝒱𝐼𝐼 + 𝐻𝒮𝑅
 <p align="right">
     <img width="320" src="https://github.com/user-attachments/assets/adb3eb5b-9568-455b-ada9-005f27ce93a8" alt="dazai frame">
 </p>
