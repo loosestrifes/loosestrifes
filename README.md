@@ -34,7 +34,7 @@ __⟡__
 > [Strawpage](https://loosestrifes.straw.page/) <-- <sub>𝘍𝘍𝘝𝘐𝘐 𝘵𝘩𝘦𝘮𝘦𝘥 :)</sub>
 >
 
-> *~~RENTRY IS UNDER CONSTRUCTION~~*
+> [Rentry](https://rentry.co/becomethedawn) <-- NEW !!! <sub>*Phainon themed :D*</sub>
 >
 
 ***
