@@ -1,8 +1,17 @@
+<p align="center">
+  
+![border image](https://github.com/loosestrifes/images/blob/e58609427927ccf4dc1154c5ad721d943f6bc50e/Untitled105_20261014155043.png "border")
 
+> **𝘛𝘩𝘢𝘯𝘬𝘴 𝘧𝘰𝘳 𝘴𝘵𝘰𝘱𝘱𝘪𝘯𝘨 𝘣𝘺!** , 𝘩𝘦𝘳𝘦'𝘴 𝘴𝘰𝘮𝘦 <ins>𝘨𝘦𝘯𝘦𝘳𝘢𝘭 𝘪𝘯𝘧𝘰</ins> 𝘢𝘴 𝘸𝘦𝘭𝘭 𝘢𝘴 𝘭𝘪𝘯𝘬𝘴 𝘵𝘰 𝘴𝘰𝘮𝘦 <ins>𝘰𝘵𝘩𝘦𝘳 𝘱𝘢𝘨𝘦𝘴</ins> .
+>> c+h & frq are always welcome! — ask before adding on discord .
 
-> **𝘛𝘩𝘢𝘯𝘬𝘴 𝘧𝘰𝘳 𝘴𝘵𝘰𝘱𝘱𝘪𝘯𝘨 𝘣𝘺** , 𝘩𝘦𝘳𝘦'𝘴 𝘴𝘰𝘮𝘦 <ins>𝘨𝘦𝘯𝘦𝘳𝘢𝘭 𝘪𝘯𝘧𝘰</ins> 𝘢𝘴 𝘸𝘦𝘭𝘭 𝘢𝘴 𝘭𝘪𝘯𝘬𝘴 𝘵𝘰 𝘮𝘺 <ins>𝘰𝘵𝘩𝘦𝘳 𝘪𝘯𝘧𝘰 𝘱𝘢𝘨𝘦𝘴</ins> .
->> *disregard how lackluster this is rn, i've been inactive for over a year so im reworking it okay? okay.
-
+<p align="left"> 
+  <img src="https://github.com/loosestrifes/images/blob/main/Untitled104_20261014154514.png?raw=true" width="500" height="500">
+</p>
+ <br>
+   <p align="left">
+      <img src="https://github.com/loosestrifes/images/blob/main/image_2026-10-14_164849451-Photoroom.png?raw=true" width="175" height="175"> <img src="https://github.com/loosestrifes/images/blob/main/image_2026-10-14_165927389-Photoroom.png?raw=true" width="75" height="75">
+    </p>
 <p align="center">
               . —      Locke / Grace / Gyro    — . 
     <p align="center">
@@ -17,20 +26,27 @@ __⟡__
 <p align="center">
 // JJBA: SBR + FFVII + PHM + HSR + OTHER STUFF
 
+<p align="right">
+<img src="https://github.com/loosestrifes/images/blob/main/image_2026-10-14_165846530-Photoroom.png?raw=true" width="75" height="75"> <img src="https://github.com/loosestrifes/images/blob/main/image_2026-10-14_165157465-Photoroom.png?raw=true" width="150" height="150">
+  
+<p align="right"> 
+  <img width="470" height="470" src="https://github.com/loosestrifes/images/blob/main/Untitled103_20261014170901.png?raw=true">
+</p>
+
 
 ***
 ## 𝑳𝑰𝑵𝑲𝑺 
 <p align="center">
-
+ <img width="200" height="200" src=https://github.com/loosestrifes/images/blob/main/image_2026-10-14_151441741-Photoroom.png?raw=true)> <img width="200" height="200" src=https://github.com/loosestrifes/images/blob/main/image_2026-10-14_151459637-Photoroom.png?raw=true)>
 </p>
 
-> Atabook being reworked!
+> Atabook being reworked! (soon...) 
 >
 
-> Strawpage being reworked!
+> [Last.fm page!](https://www.last.fm/user/PH4NTAZM)
 >
 
-> Rentry being reworked!
+> Rentry coming soon? maybe? possibly? never? perhaps? ,, 
 >
 
 ***
