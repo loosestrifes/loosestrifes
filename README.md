@@ -40,7 +40,7 @@ __⟡__
  <img width="200" height="200" src=https://github.com/loosestrifes/images/blob/main/image_2026-10-14_151441741-Photoroom.png?raw=true)> <img width="200" height="200" src=https://github.com/loosestrifes/images/blob/main/image_2026-10-14_151459637-Photoroom.png?raw=true)>
 </p>
 
-> Atabook being reworked! (soon...) 
+> [Atabook!](https://loosestrifes.atabook.org/?page=1)
 >
 
 > [Last.fm page!](https://www.last.fm/user/PH4NTAZM)
