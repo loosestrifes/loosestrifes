@@ -46,7 +46,10 @@ __⟡__
 > [Last.fm page!](https://www.last.fm/user/PH4NTAZM)
 >
 
-> Rentry coming soon? maybe? possibly? never? perhaps? ,, 
+> [Strawpage!](https://loosestrifes.straw.page)
+>
+
+> Rentry coming soon..?? maybe? possibly? never? perchance?
 >
 
 ***
