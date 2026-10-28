@@ -53,6 +53,7 @@ __⟡__
 >
 
 ***
+![What I'm listening to!](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=PH4NTAZM)
 <p align="center">
     
 </p>
